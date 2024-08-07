@@ -6,7 +6,5 @@
 - 😄 Pronouns: she\her
 - ⚡ Fun fact: Sometimes my humor can cross the line, but only sometimes.
 
-<!---
-giantliq/giantliq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![https://images.app.goo.gl/34GaznVQ3YLDqeZ78]
+
