@@ -1,10 +1,12 @@
-- 👋 Hi, I’m @giantliq!
-- 👀 I’m interested in art, music, culture and philosophys.
-- 🌱 I’m currently learning spanish and taking classes at the high school.
-- 💞️ I’m looking to collaborate on researches, studies and social projects.
-- 📫 How to reach me? You can easily find in social medias. 
-- 😄 Pronouns: she\her
-- ⚡ Fun fact: Sometimes my humor can cross the line, but only sometimes.
+### Liliques'projects 
 
-! [https://images.app.goo.gl/34GaznVQ3YLDqeZ78]
+- 🪴 Oieee! Eu sou a @giantliq! Meu nome é Lívia.
+- 💡 Eu curto muito arte, música, cultura e filosofia.
+- 🎓 Eu sou estudante do ensino médio e estudo espanhol no CEL.
+- 🎯 Meu objetivo é apoiar e participar de pesquisas e projetos sociais.
+- 
+- 💬 Curiosidades: Sou são paulina 🇾🇪, meu signo é ♎ e adoro rock e música brasileira.
+- 
+
+! [https://tenor.com/bHvtIos4xAG.gif] 
 
