@@ -8,5 +8,7 @@
 - 💬 Curiosidades: Sou são paulina 🇾🇪, meu signo é ♎ e adoro rock e música brasileira.
 - 
 
-! [https://tenor.com/bHvtIos4xAG.gif] 
+![(https://tenor.com/bHvtIos4xAG.gif)] 
+
+
 
